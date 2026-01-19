@@ -54,6 +54,7 @@ Gmail:akshithmet@gmail.com
 Phone:+918688347680 
 Location: Hyderabad.
 
+![1000286955](https://github.com/user-attachments/assets/36fa74f8-880e-4d69-9df8-0df374bf2d07)
 
 
 
